@@ -1,2 +1,2 @@
 # Welcome to Free Mind
-## A New Way to Social Media
+## A New Way to...
